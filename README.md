@@ -1,1 +1,1 @@
-# redotinc.github.io
+# redotinc
